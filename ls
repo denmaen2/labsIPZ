@@ -1,0 +1,1 @@
+buratino buratinom, a topit kamin nechem
